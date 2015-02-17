@@ -1,6 +1,8 @@
 # Tasty JavaScript Closures
 
-## 2016-02-17
+by Alesei Narkevitch, created on 2016/02/17
+
+### Probably useless intro, but hey.
 
 I ocasionally try to revisit my pocket list, where I deposit hell lot of links on daily basis to revisit them later. Today is the day I stumbled on link to javascript closures. Let's recap the encounters.
 
