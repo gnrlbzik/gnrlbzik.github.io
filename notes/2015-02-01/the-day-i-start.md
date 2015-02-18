@@ -12,10 +12,11 @@ Of all the things, it would be great for this little exercise to help me tackle 
 
 and outline this personal resolution or so called guidelines about how and what I will write about:
 
+- KEEP IT FUCKING SHORT, these are NOTES not diary entries.
 - What ever I find interesting, valuable and worth of keeping.
-- Emotional (true to my soul and mind), technical (no bull), objectively subjective (like this makes sense)
-- Applicable to everything I do or want to do
-- No bitching but if need to: let it be constructive criticism
-- Partially naive and always transparent
-- No self censoring but always with respect
-- Let it be with touch of "humorous" please
+- Emotional (true to my soul and mind), technical (no bull), objectively subjective (like this makes any sense) to my core reasons of doing this in a first place.
+- Applicable to everything I do or want to do.
+- No bitching but if need to: let it be constructive criticism.
+- Partially naive and always transparent.
+- No self censoring but always with respect.
+- Let it be with touch of "humorous" please.
