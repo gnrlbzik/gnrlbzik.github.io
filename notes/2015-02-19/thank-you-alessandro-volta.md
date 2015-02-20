@@ -12,6 +12,7 @@ Not sure how I landed on "[DIY 55$ 24AH Lithium-Ion 18650 E-Bike battery 100+ Mi
 - [WORLD'S FASTEST ELECTRIC BIKE](https://www.youtube.com/watch?v=YFGfECSwgjg)
 - [BionX D-500 Video Review - High Torque Electric Bike Kit With Regeneration](https://www.youtube.com/watch?v=EJrCWLA1VUI)
 - [10,000 WATT FAT BIKE - BIGFOOT SIGHTED](https://www.youtube.com/watch?v=e1aL7W69oXg)
+- [hitrekcycles](http://hitrekcycles.com/)
 - and lots more..... as well as a reminiscence of past search that landed me on [underground bike park](http://www.louisvillemegacavern.com/attractions/6/underground-bike-park).
 
 Being hit by shit storm of information, I decided to stop. That said, I have been hit by inspiration to rebuild fleet of two wheeled monsters.
