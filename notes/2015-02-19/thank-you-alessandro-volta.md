@@ -16,7 +16,7 @@ Not sure how I landed on "[DIY 55$ 24AH Lithium-Ion 18650 E-Bike battery 100+ Mi
 
 Being hit by shit storm of information, I decided to stop. That said, I have been hit by inspiration to rebuild fleet of two wheeled monsters.
 
-## Some history in order cause I do love bikes, even if I forgot about them for a while.
+## Some history in order, because I do love bikes, even if I forgot about them for a while.
 
 I have not been actively involved with this hobby of mine for a while now, family and work, who know how long, at list five years or so. That will change for sure.
 
