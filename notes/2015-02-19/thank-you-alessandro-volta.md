@@ -1,4 +1,4 @@
-# Thank You Alessandro Volta. Lets build 21st century's two wheeled monsters!
+# Thank You Alessandro Volta. Now lets build 21st century's two wheeled monsters!
 
 by Alesei Narkevitch, created on 2016/02/01
 
