@@ -10,6 +10,8 @@ Not sure how I landed on "[DIY 55$ 24AH Lithium-Ion 18650 E-Bike battery 100+ Mi
 - [Sondors Electric Bike](https://www.indiegogo.com/projects/sondors-electric-bike)
 - [Is the $500 Storm Electric Bike on Indiegogo a Good Deal?](https://www.youtube.com/watch?v=mZXdjm4DW50)
 - [WORLD'S FASTEST ELECTRIC BIKE](https://www.youtube.com/watch?v=YFGfECSwgjg)
+- [BionX D-500 Video Review - High Torque Electric Bike Kit With Regeneration](https://www.youtube.com/watch?v=EJrCWLA1VUI)
+- [10,000 WATT FAT BIKE - BIGFOOT SIGHTED](https://www.youtube.com/watch?v=e1aL7W69oXg)
 - and lots more..... as well as a reminiscence of past search that landed me on [underground bike park](http://www.louisvillemegacavern.com/attractions/6/underground-bike-park).
 
 Being hit by shit storm of information, I decided to stop. That said, I have been hit by inspiration to rebuild fleet of two wheeled monsters.
